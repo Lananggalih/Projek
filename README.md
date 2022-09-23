@@ -1,1 +1,1 @@
-Skripsi
+yang dilakukan semasa kuliah
